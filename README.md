@@ -1,0 +1,5 @@
+- [https://www.quora.com/profile/Alevtina-Artemovic](https://www.quora.com/profile/Alevtina-Artemovic)
+- [https://www.youtube.com/channel/UC7WW3qU09s4mU0mXY_25aLA](https://www.youtube.com/channel/UC7WW3qU09s4mU0mXY_25aLA)
+- [https://x.com/Arte41899](https://x.com/Arte41899)
+- [https://www.reddit.com/user/Antique-Constant-793/](https://www.reddit.com/user/Antique-Constant-793/)
+- [https://medium.com/@alevtinaartemovic](https://medium.com/@alevtinaartemovic)
